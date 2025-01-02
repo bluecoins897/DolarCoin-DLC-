@@ -1,2 +1,0 @@
-# DolarCoin-DLC-
-crypto
